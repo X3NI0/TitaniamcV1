@@ -1,3 +1,3 @@
-# 🏆 - Minecket
+# 🏆 - Titania
 
 > Titania website officiel
